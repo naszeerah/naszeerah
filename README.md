@@ -1,5 +1,5 @@
 # 💫 About Me:
-Wan Naszeerah, MPH<br>📲 Research Interests: Health Mis/Disinformation in Malay language + Digital Intervention<br>📚 Doctor of Public Health Student, Educator & Research IT Consultant @ UC Berkeley<br>🦠 Yale-trained Infectious Diseases Epidemiologist with GIS & Remote Sensing skills<br>🤝 Open for Collaboration, Consultation & Mentorship<br>🇧🇳 Brunei-born & raised | Mom of 1 | First-gen | Malay Native Speaker<br><br>
+Wan Nurul Naszeerah, DrPH(c) MPH<br>📲 Current Research: Vaccine Infodemiology in Bahasa Melayu & Bahasa Indonesia <br>📚 Doctor of Public Health Candidate, Epidemiology Educator & Research IT Consultant @ UC Berkeley<br>🦠 Yale-trained Infectious Diseases Epidemiologist with GIS & Remote Sensing skills<br>🤝 Open for Collaboration, Consultation & Mentorship<br>🇧🇳 Brunei-born & raised | Mom | First-gen | Malay Native Speaker<br><br>
 
 
 ## 🌐 Socials:
